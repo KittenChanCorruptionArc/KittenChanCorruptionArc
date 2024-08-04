@@ -7,7 +7,9 @@
   My fav Incel loser --> <a href="https://github.com/WheresTheExit"><img src="https://file.garden/ZorENG263zPWFUDG/8854cefcff8d8198c260b34e9c8ff1d0b22b758d.gifv" "width="20" height=20" > </a> <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_14894752696886.jpg" "width="90" height="90"> <br />
  ੯•﹅ <br /> <br />
- Hey , if you want more " in depth " info on me check out my [carrd]  <br />
+ [ For more info , like my byi + dni , go ] <br />
+ [ Check out my carrd !! ] <br />
+ <a href="https://github.com/KittenChanCorruptionArc"><img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_55971076457335.gif" "width="30" height=30" > </a> <br />
   ——— <br />
   « .. — That's what I call entertainment .. » <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/bb-removebg-preview.png" "width="290" height="290"> <br />
