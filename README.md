@@ -14,7 +14,7 @@
  • <br />
  For more info , like my byi + dni  <br />
   Check out my carrd !! <br />
- <a href="https://github.com/KittenChanCorruptionArc"><img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_55971076457335.gif" "width="30" height=30" > </a> <br />
+ <a href="https://kittenchancorruption4rc.carrd.co/"><img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_55971076457335.gif" "width="30" height=30" > </a> <br />
  ༊࿐ ͎. ｡˚ ° ⊹ ˚. <br />
   ————————————————————————————————————— <br />
   « .. — That's what I call entertainment .. » <br />
