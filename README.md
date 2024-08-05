@@ -8,10 +8,12 @@
  Follow my fav Incel loser --> <a href="https://github.com/WheresTheExit"><img src="https://file.garden/ZorENG263zPWFUDG/8854cefcff8d8198c260b34e9c8ff1d0b22b758d.gifv" "width="20" height=20" > </a> <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_14894752696886.jpg" "width="90" height="90"> <br />
  • <br />
-  ദ്ദി ૮꒰˶ᵔ ᵕ ᵔ˶꒱ა -`✧<br />
+ <sub/> { Should go without saying but , please do NOT copy my skins or take } </sub> <br />
+ <sub/> { HEAVY inspo without permission . } </sub> <br />
+ ≽^-⩊-^≼ <br />
  • <br />
- [ For more info , like my byi + dni , go ] <br />
- [ Check out my carrd !! ] <br />
+ For more info , like my byi + dni  <br />
+  Check out my carrd !! <br />
  <a href="https://github.com/KittenChanCorruptionArc"><img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_55971076457335.gif" "width="30" height=30" > </a> <br />
  ༊࿐ ͎. ｡˚ ° ⊹ ˚. <br />
   ————————————————————————————————————— <br />
