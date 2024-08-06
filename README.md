@@ -1,6 +1,6 @@
  ~ <img src="https://camo.githubusercontent.com/bdb07a95862ab7499edecdcdbc2817fe8e7b019f37f51f18d529bec1e323f4d2/68747470733a2f2f66696c652e67617264656e2f5a6c6f377768465932416651524f4d452f556e7469746c65643532325f32303234303733313232323732302e706e67" height=20 weight=50> ![](https://komarev.com/ghpvc/?username=KittenChanCorruptionArc&color=7E1A1A&style=plastic&label=_🌹_++++&abbreviated=trueb5415c) <img src="https://camo.githubusercontent.com/bdb07a95862ab7499edecdcdbc2817fe8e7b019f37f51f18d529bec1e323f4d2/68747470733a2f2f66696c652e67617264656e2f5a6c6f377768465932416651524f4d452f556e7469746c65643532325f32303234303733313232323732302e706e67" height=20 weight=50> ~  <br />
 <div align="center"> <br />
- <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_54383047457010.jpg" "width="50" height="50">
+ <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_54383047457010.jpg" "width="50" height="50"> <br />
   « .. Punch your lights out , hit the pavement — .. » <br /> 
  ————————————————————————————————————— <br />
  ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ <br />
@@ -18,6 +18,6 @@
  ༊࿐ ͎. ｡˚ ° ⊹ ˚. <br />
   ————————————————————————————————————— <br />
   « .. — That's what I call entertainment .. » <br />
- <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_54386552472472.jpg" "width="50" height="50">
+ <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_54386552472472.jpg" "width="50" height="50"> <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/bb-removebg-preview.png" "width="290" height="290"> <br />
 </div>
