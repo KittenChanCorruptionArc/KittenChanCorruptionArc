@@ -14,7 +14,7 @@
  For more info , like my byi + dni  <br />
   Check out my carrd / rentry ( wip ) !! <br />
  <a href="https://kittenchancorruption4rc.carrd.co/"><img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_55971076457335.gif" "width="30" height=30" > </a> <br />
- <a href="https://rentry.co/KittenChanCorruptionArcc"><img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_82995368749715.gif" "width="30" height=30" > </a> <br />
+ <a href="https://youtu.be/jWUUg598wEE?si=MfNkNscY_J3oo8oE"><img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_82995368749715.gif" "width="30" height=30" > </a> <br />
  ༊࿐ ͎. ｡˚ ° ⊹ ˚. <br />
   ————————————————————————————————————— <br />
   « .. — That's what I call entertainment .. » <br />
