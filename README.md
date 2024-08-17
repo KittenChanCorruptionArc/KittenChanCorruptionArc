@@ -6,7 +6,7 @@
  ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ <br />
  Hi , I'm a 19 yr old guy . <br />
  Follow my fav Incel loser --> <a href="https://github.com/WheresTheExit"><img src="https://file.garden/ZorENG263zPWFUDG/8854cefcff8d8198c260b34e9c8ff1d0b22b758d.gifv" "width="20" height=20" > </a> <br />
-  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_14894752696886.jpg" "width="90" height="90"> <br />
+<img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_33662805895236.jpg" "width="90" height="90"> <br />
  ≽^-⩊-^≼ <br />
  <sub/> { Should go without saying but , please do NOT copy my skins or take } </sub> <br />
  <sub/> { HEAVY inspo without permission . } </sub> <br />
