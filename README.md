@@ -16,6 +16,6 @@
   « .. — That's what I call entertainment .. » <br />
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_54386552472472.jpg" "width="50" height="50"> <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/bb-removebg-preview.png" "width="280" height="280"> <br />
- `  /) /) ✧ ႔ ႔ <br />
-( • ༝•)   ᠸ^ ^ ` 𐅠<br />
+<sub/> `  /) /) ✧ ႔ ႔ </sub> <br />
+<sub/> ( • ༝•)   ᠸ^ ^ ` 𐅠</sub> <br />
 </div>
