@@ -3,7 +3,7 @@
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_54383047457010.jpg" "width="50" height="50"> <br />
   « .. Punch your lights out , hit the pavement — .. » <br /> 
  ───────────────────────────── <br />
- Hai , I'm Juicy >_< . <br />
+ Hai , >_< . <br />
  My fav Incel loser —> <a href="https://github.com/WheresTheExit"><img src="https://file.garden/ZorENG263zPWFUDG/8854cefcff8d8198c260b34e9c8ff1d0b22b758d.gifv" "width="20" height=20" > </a> <br />
 <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_33662805895236.jpg" "width="90" height="90"> <br />
 ࿐༘་🐺ִֶָ ˖࣪ 𓂃ִִִֶֶֶָָָ𓂃 ࣪˖ ִֶָ🐇་༘࿐ <br />
