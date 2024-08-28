@@ -7,6 +7,7 @@
  My fav Incel loser —> <a href="https://github.com/WheresTheExit"><img src="https://file.garden/ZorENG263zPWFUDG/8854cefcff8d8198c260b34e9c8ff1d0b22b758d.gifv" "width="20" height=20" > </a> <br />
 <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_33662805895236.jpg" "width="90" height="90"> <br />
 ࿐༘་🐺ִֶָ ˖࣪ 𓂃ִִִֶֶֶָָָ𓂃 ࣪˖ ִֶָ🐇་༘࿐ <br />
+  <sub/> ⟨⟨ Please do NOT copy / take inspo from my skins . ⟩⟩ </sub> <br />
 <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_243604178378750.jpg" "width="150" height="150"> <br />
   ࿐༘་🐺ִֶָ ˖࣪ 𓂃ִִֶֶָָ𓂃 ࣪˖ ִֶָ🐇་༘࿐<br />
   Check out my rentry below !!<br />
