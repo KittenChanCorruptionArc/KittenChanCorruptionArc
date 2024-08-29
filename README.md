@@ -16,6 +16,6 @@
   « .. — Me and cat mama rolled into the distant fog — Little did she know I'm a nasty dog .. » <br />
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_54386552472472.jpg" "width="50" height="50"> <br />
   <sub/> ₊˚⊹♡ ` ᶻ 𝘇 𐰁   ႔ ႔ </sub> <br />
-<sub/>໒꒰ྀི｡- ˕ -｡ྀི꒱১  ᠸ^ ^ ` 𐅠</sub> <br />
+<sub/>໒꒰ྀི｡- ˕ -｡ྀི꒱১  ᠸ^ ^ ` 𐅠</sub> <br /> <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/bb-removebg-preview.png" "width="280" height="280"> <br />
 </div>
