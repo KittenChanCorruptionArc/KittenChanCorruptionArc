@@ -1,4 +1,4 @@
- ![](https://komarev.com/ghpvc/?username=KittenChanCorruptionArc&color=800000&style=plastic&label=_ᶻ_𝘇_𐰁_++++&abbreviated=trueb5415c)
+ ![](https://komarev.com/ghpvc/?username=KittenChanCorruptionArc&color=5C162E&style=for-the-badge&label=_ᶻ_𝘇_𐰁_++++&abbreviated=trueb5415c)
 <div align="center"> <br />
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_206283575022602.jpg" "width="30" height="30"> <br />
   « .. Back to the kitty , cause she's kinda pretty — I can't stop lookin at her ti - ti - ti - face  — .. » <br /> 
