@@ -9,6 +9,7 @@
 ࿐༘་🐺ִֶָ ˖࣪ 𓂃ִִִֶֶֶָָָ𓂃 ࣪˖ ִֶָ🐇་༘࿐ <br />
   <sub/> ⟨⟨ Please do NOT copy / take inspo from my skins . ⟩⟩ </sub> <br />
 <img src="https://file.garden/Zlo7whFY2AfQROME/Argenti%201.png" "width="130" height="130"> <br />
+  <sub/> ⟨⟨ Yes , I'm the Argenti that runs around calling skins pretty ! >_< ⟩⟩ </sub> <br />
   ࿐༘་🐺ִֶָ ˖࣪ 𓂃ִִֶֶָָ𓂃 ࣪˖ ִֶָ🐇་༘࿐<br />
   Check out my rentry below !!<br />
  <a href="https://rentry.co/KittenChanCorruptionArcc"><img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_4374811607490.gif" "width="30" height=30" > </a> <br />
