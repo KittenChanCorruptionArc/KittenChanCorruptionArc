@@ -19,6 +19,6 @@ $\color{#c17665}{THE~wolverine~ever~!!~—>}$ <a href="https://github.com/Wheres
  $\color{#e25b5b}{—~Little~did~she~know~I'm~a~nasty~dog~..~»}$ <br />
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_206285126638910.jpg" "width="30" height="30"> <br />
   <img src="https://file.garden/Zlo7whFY2AfQROME/bb-removebg-preview.png" "width="270" height="270"> <br />
-   <sub/> ₊˚⊹♡ ` ᶻ 𝘇 𐰁   ႔ ႔ </sub> <br />
-<sub/>໒꒰ྀི｡- ˕ -｡ྀི꒱১  ᠸ^ ^ ` 𐅠</sub> <br /> <br />
+   <sub/> $\color{#854847}{₊˚⊹♡~`~~ᶻ~𝘇~𐰁~...~႔~~႔}$</sub> <br />
+<sub/>$\color{#854847}{໒꒰ྀི｡-~˕~-｡ྀི꒱১~~ᠸ◠~◠~𐅠}$ <br /> <br />
 </div>
