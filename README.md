@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=KittenChanCorruptionArc&color=5C162E&style=for-the-badge&label=_`⎚⩊⎚´_++++&=trueb5415c) 
+![](https://komarev.com/ghpvc/?username=KittenChanCorruptionArc&color=5C162E&style=for-the-badge&label=_ˆ𐃷ˆ_++++&=trueb5415c) 
 <p align="center">
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_206283575022602.jpg" "width="30" height="30"> <br />
   $\color{#e25b5b}{«~..~Back~to~the~kitty~,~cause~she's~kinda~pretty~—~I~can't~stop~}$<br /> 
