@@ -9,7 +9,8 @@ $\color{#c17665}{THE~wolverine~ever~!!~—>}$ <a href="https://github.com/Wheres
 <img src="https://file.garden/Zlo7whFY2AfQROME/20240910_060339.jpg" "width="120" height="120"> <br />
   $\color{#c17665}{࿐༘་🐺~୨~♡~୧~🐇་༘࿐}$ <br />
   $\color{#854847}{Check~out~my~rentry~below~!!}$<br />
-<img src="https://file.garden/Zlo7whFY2AfQROME/Argenti%201.png" "width="40" height="40"> <a href="https://rentry.co/KittenChanCorruptionArcc"><img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_4374811607490.gif" "width="30" height=30" > </a> <img src="https://file.garden/Zlo7whFY2AfQROME/Argenti%201.png" "width="40" height="40"> <br />
+   $\color{#c17665}{NOT~LINKED~!!~I~’~m~workin~on~it~agian~ˆ𐃷ˆ}$ <br />
+<img src="https://file.garden/Zlo7whFY2AfQROME/Argenti%201.png" "width="40" height="40"> <a href="https://youtu.be/4kJqVquBGv8?si=BblGbYyb2efnr01F"><img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_4374811607490.gif" "width="30" height=30" > </a> <img src="https://file.garden/Zlo7whFY2AfQROME/Argenti%201.png" "width="40" height="40"> <br />
   $\color{#fabda1}{︶֪︶︶֪︶︶︶֪︶︶֪︶︶ིྀ︶︶֪︶︶︶֪︶︶֪︶︶֪ }$<br />
   $\color{#e25b5b}{«~..~—~Me~and~cat~mama~rolled~into~the~distant~fog}$ <br /> 
  $\color{#e25b5b}{—~Little~did~she~know~I~'~m~a~nasty~dog~..~»}$ <br />
