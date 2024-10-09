@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=KittenChanCorruptionArc&color=5C162E&style=for-the-badge&label=_ˆ𐃷ˆ_++++&=trueb5415c) 
+![](https://komarev.com/ghpvc/?username=KittenChanCorruptionArc&color=5C162E&style=for-the-badge&label=_ˆ𐃷ˆ_++++&=trueb5415c)
 <p align="center">
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_206283575022602.jpg" "width="30" height="30"> <br />
   $\color{#e25b5b}{«~..~I~wasted~like~half~of~my~summer~tryna~..~»}$<br /> 
@@ -14,7 +14,7 @@ $\color{#c17665}{THE~wolverine~ever~!!~—>}$ <a href="https://github.com/Wheres
   $\color{#e25b5b}{«~..~—~You~'~re~the~leech~,~I~'~m~the~man~,~..~»}$ <br /> 
  $\color{#e25b5b}{«~..~—~I~guess~you~don~'~t~understand~..~»}$ <br />
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_206285126638910.jpg" "width="30" height="30"> <br />
-  <img src="https://file.garden/Zlo7whFY2AfQROME/bb-removebg-preview.png" "width="270" height="270"> <br />
    <sub/> $\color{#fabda1}{₊˚⊹♡~`~~ᶻ~𝘇~𐰁~...~႔~~႔}$</sub> <br />
-<sub/>$\color{#fabda1}{໒꒰ྀི｡-~˕~-｡ྀི꒱১~~ᠸ◠~◠~𐅠}$ <br /> <br />
+<sub/>$\color{#fabda1}{໒꒰ྀི｡-~˕~-｡ྀི꒱১~~ᠸ◠~◠~𐅠}$ <br />
+ <img src="https://files.catbox.moe/33448i.gif" "width="" height="53"><img src="https://files.catbox.moe/9q2w18.png" "width="" height="53"><img src="https://files.catbox.moe/mgfgrv.jpg" "width="" height="53"><img src="https://files.catbox.moe/wfxvbx.gif" "width="" height="53"> <br />
 </div>
