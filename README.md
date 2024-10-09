@@ -17,5 +17,5 @@ $\color{#c17665}{THE~wolverine~ever~!!~—>}$ <a href="https://github.com/Wheres
    <sub/> $\color{#fabda1}{₊˚⊹♡~`~~ᶻ~𝘇~𐰁~...~႔~~႔}$</sub> <br />
 <sub/>$\color{#fabda1}{໒꒰ྀི｡-~˕~-｡ྀི꒱১~~ᠸ◠~◠~𐅠}$ <br />
  <img src="https://files.catbox.moe/33448i.gif" "width="" height="53"><img src="https://files.catbox.moe/9q2w18.png" "width="" height="53"><img src="https://files.catbox.moe/mgfgrv.jpg" "width="" height="53"><img src="https://files.catbox.moe/wfxvbx.gif" "width="" height="53"> <br />
- <img src="https://files.catbox.moe/o67x33.gif" "width="" height="53"><img src="https://files.catbox.moe/bedq7w.png" "width="" height="53"><img src="https://files.catbox.moe/i6jrbi.png" "width="" height="53"><img src="https://files.catbox.moe/xbu5dw.png" "width="" height="53">
+ <img src="https://files.catbox.moe/2qo1ye.jpg" "width="" height="53"><img src="https://files.catbox.moe/bedq7w.png" "width="" height="53"><img src="https://files.catbox.moe/i6jrbi.png" "width="" height="53"><img src="https://files.catbox.moe/xbu5dw.png" "width="" height="53"> <br />
 </div>
