@@ -1,5 +1,7 @@
-![](https://komarev.com/ghpvc/?username=KittenChanCorruptionArc&color=5C162E&style=for-the-badge&label=_ˆ𐃷ˆ_++++&=trueb5415c)
 <p align="center">
+ <a href="https://visitcount.itsvg.in">
+  <img src="https://visitcount.itsvg.in/api?id=LuvUrGutz&label=%CB%86%F0%90%83%B7%CB%86&color=10&icon=7&pretty=false" />
+</a>
  <img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_206283575022602.jpg" "width="30" height="30"> <br />
   $\color{#e25b5b}{«~..~I~wasted~like~half~of~my~summer~tryna~..~»}$<br /> 
  $\color{#e25b5b}{«~..~—~hold~on~your~hand~—~..~»}$ <br /> 
