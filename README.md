@@ -7,7 +7,7 @@
  $\color{#e25b5b}{«~..~—~hold~on~your~hand~—~..~»}$ <br /> 
  $\color{#fabda1}{︶֪︶︶֪︶︶︶֪︶︶֪︶︶ིྀ︶︶֪︶︶︶֪︶︶֪︶︶֪ }$<br />
  $\color{#854847}{Hai~,~(⁠≧⁠▽⁠≦⁠)~.}$ <br />
-$\color{#c17665}{THE~wolverine~ever~!!~—>}$ <a href="https://github.com/WheresTheExit"><img src="https://file.garden/Zlo7whFY2AfQROME/ff9a7f5d7869b7613c7dcb4fb43345ef555f8bdb.gif" "width="20" height=20" > </a> <br />
+$\color{#c17665}{THE~wolverine~ever~!!~—>}$ <a href="https://github.com/WheresTheExit"><img src="https://files.catbox.moe/60hbmn.gif" "width="20" height=20" > </a> <br />
 <img src="https://file.garden/Zlo7whFY2AfQROME/20240910_060339.jpg" "width="120" height="120"> <br />
   $\color{#c17665}{࿐༘་🐺~୨~♡~୧~🐇་༘࿐}$ <br />
   $\color{#854847}{Check~out~my~rentry~below~!!~Strawpage~is~on~it~.}$<br />
