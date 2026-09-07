@@ -11,6 +11,6 @@ $\color{#B0FFAE}{╰──────~·~·~୨୧~·~·~──────╯}
 $\color{#21D71B}{“~明日も明後日もその先も}$<br />
 $\color{#21D71B}{僕はずっと~ずっと待ち続けるんだろうな~”}$<br />
   <br />
-<img src="https://file.garden/Zlo7whFY2AfQROME/Tumblr_l_296253072537042.jpg""width="40" height="40"> </p>
+<img src="https://files.catbox.moe/k8uywr.png""width="40" height="40"> </p>
   <p align="center">
  <sub> $\color{#B0FFAE}{࿐~~`~`~~Block~~If~~You~~Want~~.~~`~`~~૮₍´｡ᵔ~ꈊ~ᵔ｡`₎ა}$</sub>
