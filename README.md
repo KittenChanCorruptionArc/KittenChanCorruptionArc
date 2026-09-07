@@ -5,7 +5,7 @@ $\color{#21D71B}{“~とめどなく溢れる~「会いたい」}$
 $\color{#21D71B}{気持ち~なんでだろうな~まだわかんないな~”}$ <br />
 $\color{#B0FFAE}{╭──────~·~·~୨୧~·~·~──────╮}$<br /> 
   <br />
-<img src="https://file.garden/Zlo7whFY2AfQROME/5677bc49.gif" "width="60" height="60"> <br />
+<img src="https://files.catbox.moe/dxowl2.gif" "width="60" height="60"> <br />
 <p align="center">
 $\color{#B0FFAE}{╰──────~·~·~୨୧~·~·~──────╯}$<br />
 $\color{#21D71B}{“~明日も明後日もその先も}$<br />
